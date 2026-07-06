@@ -1,4 +1,4 @@
-# 
+# Instantáneo Expensify extensiones para Mac OS | Ligero Expensify extensiones para PC Windows. Con seguimiento de kilometraje y aprobaciones de múltiples niveles — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
